@@ -1,0 +1,2 @@
+# azizbek-
+salom dunyo
